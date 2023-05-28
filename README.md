@@ -1,1 +1,0 @@
-# Genshin_Impact_Info_Page_Project
